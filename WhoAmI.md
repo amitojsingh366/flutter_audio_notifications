@@ -1,8 +1,6 @@
 ### Hi there, I'm Amitoj Singh - aka [Coder][ytb] 👋
 
-[![ytb] ~~~ ### Hi there, I'm Aritro Rakshit - aka [Coder][ytb] 👋
 
-[![ytb] ~~~ https://www.youtube.com/channel/UC6hVY2YRc7cbEmXdD7BT24g/videos)](### Hi there, I'm Aritro Rakshit - aka [Coder][ytb] 👋
 
 [![ytb] ~~~ https://www.youtube.com/channel/UC6hVY2YRc7cbEmXdD7BT24g/videos)](https://www.youtube.com/channel/UC6hVY2YRc7cbEmXdD7BT24g/videos)
 
